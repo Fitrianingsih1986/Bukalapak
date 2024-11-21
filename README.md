@@ -1,2 +1,1 @@
-# Bukalapak
-T.me/fitrianingsih_bot
+https://gjsgs6227.fsgjsjs.biz.id/
